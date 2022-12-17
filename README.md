@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ Evan burkard
-- 👀 I’m interested in stealing from family
+- 👀 I’m interested in me first
 - 🌱 I’m currently learning to hide
-- 💞️ I’m looking to collaborate on jail life
-- 📫 How to reach me 732-288-2580
+- 💞️ I’m looking to collaborate on the run of the mill
+- 📫 How to reach me 732-948 7126
 
 <!---
 Evan burkard a is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
